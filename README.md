@@ -1,0 +1,1 @@
+# CodeAlpha_-Mini-Project-IoT-Case-Study-on-IoT-and-artificial-intelligence-integration-
